@@ -1,0 +1,2 @@
+# ThisModpackHatesYou
+Minecraft Modpack Changelog
